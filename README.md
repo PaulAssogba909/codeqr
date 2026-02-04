@@ -1,0 +1,2 @@
+# codeqr
+Sécurité absolue novekai
